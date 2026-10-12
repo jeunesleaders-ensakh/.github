@@ -113,17 +113,6 @@ Want to join the club, contribute to a project or discuss a partnership? Reach u
 | 🏫 **Institution website** | [ENSA Khouribga](https://ensak.usms.ac.ma/) |
 | 📍 **Location** | ENSA Khouribga, Boulevard Béni Amir, BP 77, 25000 Khouribga, Morocco |
 
-<details>
-<summary><strong>Project coordination contacts — 2025–2026</strong></summary>
-
-Contacts listed in the club's April 2026 project report:
-
-| Role | Name | Email | Phone |
-| :--- | :--- | :--- | :--- |
-| Team Leader | Oussama Moudouji | [moudoujioussama.mdj@gmail.com](mailto:moudoujioussama.mdj@gmail.com) | [+212 650 750 222](tel:+212650750222) |
-| Head of Projects | Youssef Maimouni | [youssefmaimouni03@gmail.com](mailto:youssefmaimouni03@gmail.com) | [+212 682 419 203](tel:+212682419203) |
-
-</details>
 
 ## Join the Movement
 
